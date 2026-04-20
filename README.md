@@ -1,5 +1,5 @@
 # 💫 About Me:
-🎓 BSc Data Science Student at UPV (Valencia)<br>👥 Member at Sigma Data Club<br>🖥️ Open to job opportunities
+🎓 BSc Data Science Student at UPV (Valencia)<br>👥 Incoming Board Member at Sigma Data Club<br>🖥️ Open to job opportunities
 
 
 ## 🌐 Socials:
